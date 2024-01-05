@@ -68,11 +68,11 @@ Salah - - - - - Benar
   - Ya, untuk karakter fiksi
   - Tidak, untuk diri saya sendiri
 - Bagaimana Anda tahu tentang tes ini?
-  - Mesin Pencari
-  - Media Sosial
+  - Mesin pencari
+  - Media sosial
   - Rekomendasi
-  - Penguji Beta
-  - Institusi Publik
+  - Penguji beta
+  - Institusi publik
 
 << Sebelumnya | Selanjutnya >>
 

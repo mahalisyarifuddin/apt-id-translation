@@ -59,7 +59,7 @@ Salah - - - - - Benar
 45. Kejujuran dan selalu mengatakan yang sebenarnya adalah salah satu prinsip terbesar Anda.
 46. Anda menuntut orang-orang tertentu untuk bertanggung jawab atas kesejahteraan pribadi Anda karena Anda tidak dapat mengumpulkan cukup energi untuk melakukannya sendiri.
 47. Anda sangat tidak suka mengkritik tetangga Anda karena tindakan dan sifat yang tidak dapat Anda terima.
-48. Anda enggan melepaskan keuntungan dan hak istimewa dalam gaya hidup Anda saat ini karena Anda sangat terikat hal-hal tersebut, meskipun Anda bisa menghindari banyak penderitaan yang tidak perlu.
+48. Anda enggan melepaskan keuntungan dan hak istimewa dalam gaya hidup Anda saat ini karena Anda sangat terikat pada hal-hal tersebut, meskipun Anda bisa menghindari banyak penderitaan yang tidak perlu.
 
 - Apakah Anda pernah mengambil tes ini sebelumnya?
   - Ya

@@ -62,17 +62,17 @@ Salah - - - - - Benar
 48. Anda enggan melepaskan keuntungan dan hak istimewa dalam gaya hidup Anda saat ini karena Anda sangat terikat hal-hal tersebut, meskipun Anda bisa menghindari banyak penderitaan yang tidak perlu.
 
 - Apakah Anda pernah mengambil tes ini sebelumnya?
- - Ya
- - Tidak
+  - Ya
+  - Tidak
 - Apakah Anda mengambil tes ini untuk mengidentifikasi karakter fiksi, atau karena alasan yang tidak langsung terkait dengan diri Anda saat ini?
- - Ya, untuk karakter fiksi
- - Tidak, untuk diri saya sendiri
+  - Ya, untuk karakter fiksi
+  - Tidak, untuk diri saya sendiri
 - Bagaimana Anda tahu tentang tes ini?
- - Mesin Pencari
- - Media Sosial
- - Rekomendasi
- - Penguji Beta
- - Institusi Publik
+  - Mesin Pencari
+  - Media Sosial
+  - Rekomendasi
+  - Penguji Beta
+  - Institusi Publik
 
 << Sebelumnya | Selanjutnya >>
 

@@ -1,0 +1,16 @@
+- Mode Terang/Gelap
+- Statistik
+- Tes Kepribadian
+  - Cognitype
+  - Enneagram
+  - Psychosophy
+  - Tempramen
+  - Sifat Toksik
+- Ensiklopedia
+  - Tipe Enneagram
+  - Cognitype
+  - Sifat Toksik
+---
+- Beranda
+- Kebijakan Privasi
+- Informasi Kontak

@@ -1,0 +1,50 @@
+- Anda suka membantu orang-orang yang penting bagi Anda dengan tugas-tugas rumit agar mereka bisa bersantai.
+- Anda memiliki keterampilan dalam merawat rumah tangga.
+- Anda memperhatikan kebutuhan orang-orang yang Anda cintai, itulah sebabnya Anda suka merawat kesejahteraan fisik mereka.
+- Anda suka sibuk melakukan pekerjaan rumah tangga atau belanja.
+- Jika Anda merencanakan kegiatan dengan orang yang Anda cintai, Anda bersedia mengalah dan melakukan sesuatu yang tidak terlalu Anda sukai.
+- Anda sangat menyukai ketika orang lain mengambil alih rutinitas Anda sehingga Anda bisa bersantai.
+- Anda ingin pasangan Anda membuat kehidupan sehari-hari Anda lebih mudah.
+- Anda lebih suka ketika orang lain mengurus urusan organisasi, seperti merencanakan perjalanan dan kegiatan.
+- Anda memiliki masalah dalam merawat hal-hal sehari-hari sendiri, itulah sebabnya Anda ingin orang lain membantu Anda.
+- Anda merasa sangat tertekan untuk sepenuhnya mengandalkan diri sendiri dalam hidup.
+- Anda menikmati berpelukan dan menyentuh orang-orang yang secara emosional dekat dengan Anda, mungkin juga teman.
+- Anda sering menyentuh orang lain dengan tujuan memberi mereka kenyamanan/penghiburan.
+- Anda kadang-kadang memeluk teman Anda.
+- Anda tidak keberatan memegang tangan orang yang Anda cintai atau memeluk mereka di depan umum.
+- Anda tidak memiliki masalah dengan kontak fisik.
+- Anda cepat merasa jauh dari pasangan Anda jika Anda tidak menerima kasih sayang fisik dari mereka.
+- Anda suka disentuh oleh orang-orang yang secara emosional dekat dengan Anda.
+- Kepala Anda penuh dengan khayalan tentang kontak fisik dengan orang yang Anda sukai.
+- Untuk merasa dicintai, Anda membutuhkan keintiman fisik dari pasangan Anda.
+- Saat Anda tidur, Anda lebih suka berpelukan dengan seseorang.
+- Ketika Anda mengunjungi seseorang, Anda memastikan Anda membawakan sesuatu yang mereka sukai.
+- Anda suka mengatur acara khusus untuk orang lain, seperti ulang tahun dan acara sejenis.
+- Anda suka memberi orang lain hadiah kecil untuk menunjukkan bahwa Anda memikirkan mereka.
+- Anda suka memberi hadiah kepada orang-orang yang penting bagi Anda pada acara khusus.
+- Anda tidak keberatan membayar hal-hal kecil untuk orang-orang yang Anda cintai dari waktu ke waktu.
+- Anda menghubungkan perasaan dan pengalaman pribadi dengan benda-benda.
+- Anda menghargai segala sesuatu yang diberikan orang lain kepada Anda, tidak peduli seberapa kecil hadiahnya.
+- Anda merasa sangat dihargai ketika Anda menerima hadiah dari orang lain.
+- Anda suka menerima hadiah dari orang lain pada acara khusus.
+- Anda suka ketika orang lain membawa Anda sesuatu dari waktu ke waktu.
+- Anda memberi tahu orang lain bahwa Anda menghargai mereka dan mengungkapkannya melalui kata-kata.
+- Anda sangat berterima kasih atas persahabatan dan perhatian orang lain dan juga mengungkapkan ini kepada mereka.
+- Pendapat orang lain sangat penting bagi Anda, itulah sebabnya Anda selalu ingin berbicara tentang segala sesuatu.
+- Anda suka memotivasi orang lain untuk melakukan hal-hal dan mengejar tujuan.
+- Anda pandai membuat orang lain merasa nyaman melalui komunikasi.
+- Anda ingin orang lain memberi tahu Anda betapa mereka mencintai dan menghargai Anda.
+- Menerima kata-kata penyemangat dari orang lain memotivasi Anda dan membantu Anda untuk terus maju.
+- Menerima pujian memiliki pengaruh signifikan terhadap kepercayaan diri Anda.
+- Anda peduli apa yang dipikirkan orang lain tentang Anda dan oleh karena itu ingin mendapatkan umpan balik positif.
+- Anda ingin seseorang menyemangati Anda saat Anda mengejar tujuan Anda di sepanjang jalan.
+- Anda tidak fokus pada ponsel Anda ketika Anda bersama orang lain.
+- Tidak peduli seberapa sibuknya Anda, Anda selalu meluangkan waktu untuk menghabiskan waktu dengan orang-orang yang Anda cintai.
+- Anda bersedia tinggal bersama pasangan Anda ketika ada kesempatan.
+- Anda tidak malu untuk menghabiskan waktu bersama dengan orang lain.
+- Anda tidak keberatan menyerahkan sebagian privasi Anda untuk orang lain.
+- Anda merasa terpisah dari pasangan Anda jika Anda tidak bisa menghabiskan banyak waktu bersama.
+- Anda tidak bisa membayangkan hubungan jarak jauh.
+- Sangat penting bagi Anda untuk sering menghabiskan waktu bersama dengan pasangan Anda.
+- Waktu-waktu ketika Anda secara fisik terpisah dari pasangan Anda sangat sulit bagi Anda.
+- Melakukan hal-hal bersama dengan orang lain adalah salah satu hal yang paling Anda sukai.

@@ -8,4 +8,4 @@ Tautan ini tidak dapat dibagikan dan hanya berfungsi di peramban ini - gunakan t
 - Kata-kata Afirmasi
 - Waktu Berkualitas
 
-({{PERCENTAGE}}) Memberikan | ({{PERCENTAGE}}) Membutuhkan 
+({{NUMBER}},{{DECIMAL}}) Memberikan | ({{NUMBER}},{{DECIMAL}}) Membutuhkan 

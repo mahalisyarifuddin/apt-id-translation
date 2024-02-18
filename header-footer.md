@@ -11,6 +11,7 @@
   - Semua Ensiklopedia
   - Tipe Enneagram
   - Cognitype
+  - Arketipe Jungian
   - Sifat Toksik
 ---
 - Beranda

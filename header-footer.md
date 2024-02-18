@@ -1,12 +1,14 @@
 - Mode Terang/Gelap
 - Statistik
 - Tes Kepribadian
+  - Semua Tes
   - Cognitype
   - Enneagram
-  - Psychosophy
+  - Psikosofi (PY)
   - Tempramen
   - Sifat Toksik
 - Ensiklopedia
+  - Semua Ensiklopedia
   - Tipe Enneagram
   - Cognitype
   - Sifat Toksik

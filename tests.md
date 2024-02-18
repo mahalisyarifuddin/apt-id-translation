@@ -22,4 +22,5 @@ Sejauh ini {{NUMBER}} tes telah diambil di Advanced Personality!
   Sifat-sifat toksik menunjukkan bidang-bidang yang dapat Anda tingkatkan dalam situasi sosial dan antarpribadi.
 
 {{NUMBER}} Pertanyaan
+
 Tes yang diambil: {{NUMBER}}

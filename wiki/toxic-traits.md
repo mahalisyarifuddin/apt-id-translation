@@ -8,7 +8,7 @@ Ketidakpercayaan:
 Orang dengan ketidakpercayaan sulit untuk percaya pada orang lain atau bahkan percaya secara membabi buta pada orang terdekat. Hal ini sering dikaitkan dengan keraguan, perilaku mengendalikan, dan kecemburuan yang tidak masuk akal. 
 
 Positivitas Toksik:
-Orang dengan positifitas toksik menyebabkan lebih banyak masalah daripada solusi dengan usaha mereka. Karena melalui perilaku mereka, mereka tidak sampai ke akar masalah. Masalah orang lain biasanya diabaikan begitu saja dan diremehkan dengan frasa dan kalimat yang dangkal dan tidak dipikirkan dengan matang. 
+Orang dengan positivitas toksik menyebabkan lebih banyak masalah daripada solusi dengan usaha mereka. Karena melalui perilaku mereka, mereka tidak sampai ke akar masalah. Masalah orang lain biasanya diabaikan begitu saja dan diremehkan dengan frasa dan kalimat yang dangkal dan tidak dipikirkan dengan matang. 
 
 Pesimisme:
 Orang pesimis menyeret orang lain ke dalam negativitas bersama mereka. Mereka cenderung banyak mengeluh, terus-menerus mencoba mendorong penderitaan mereka sendiri pada orang lain. Mereka juga bisa memiliki kecenderungan nihilistik dan biasanya tidak sangat berorientasi pada tujuan.

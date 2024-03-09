@@ -1,7 +1,7 @@
 # 12 Arketipe Jung
 
 ## Si Polos
-Motto: 
+Moto: 
 Kita semua bebas menjadi diri sendiri, kita semua berhak bahagia dan merdeka.
 
 Keinginan Utama:
@@ -26,7 +26,7 @@ Juga dikenal sebagai:
 Utopis, Naif, Mistis, Orang Suci, Romantis, Pemimpi
 
 ## Si Bijak  
-Motto:
+Moto:
 Kebenaran dan pemahaman adalah pintu menuju pemenuhan diri.
   
 Keinginan Utama:
@@ -51,7 +51,7 @@ Juga dikenal sebagai:
 Ahli, Cendekiawan, Guru, Filsuf, Pemikir, Peneliti  
 
 ## Si Petualang
-Motto: 
+Moto: 
 Jangan belenggu aku.
 
 Keinginan Utama:  
@@ -76,7 +76,7 @@ Juga dikenal sebagai:
 Pengembara, Individualis, Pencari, Peziarah
 
 ## Si Pemberontak  
-Motto:
+Moto:
 Aturan dibuat untuk dilanggar atau diubah.
 
 Keinginan Utama: 
@@ -101,7 +101,7 @@ Juga dikenal sebagai:
 Pemberontak, Revolusioner, Ikonoklas, Reformis
 
 ## Si Pesulap
-Motto:
+Moto:
 Aku akan mewujudkan dan menciptakan keajaiban.  
 
 Keinginan Utama:
